@@ -2,6 +2,7 @@
 A collection of my guitar arrangements in PDF and GP5 files. 
 
 ## Video Games
+* Detroit: Become Human - Intro Theme (Markus Hopeful Piano)
 * Dragon Age ~ Inquisition - Enchanter
 * Fable 2 - Music Box
 * Final Fantasy VI - Terra's Theme
