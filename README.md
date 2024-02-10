@@ -76,6 +76,10 @@ My Guitar and Ukulele arrangements avaliable to purchase on [paidtabs.com](https
 
 - [When Ginny Kissed Harry](https://paidtabs.com/u/LaoiseEarle/q/q8LxQQYJtUQ)
 
+**Journey:**
+
+- [Don't Stop Believin'](https://paidtabs.com/u/LaoiseEarle/q/1k8craCGpgs)
+
 **Kacey Musgraves:**
 
 - [Christmas Makes Me Cry](https://paidtabs.com/u/LaoiseEarle/q/IZBrd18xzsw)
