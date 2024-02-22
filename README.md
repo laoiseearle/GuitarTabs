@@ -64,6 +64,10 @@ My Guitar and Ukulele arrangements avaliable to purchase on [paidtabs.com](https
 
 - [What Was I Made For](https://paidtabs.com/u/LaoiseEarle/q/cW8VLC9nnTo)
 
+**Bread:**
+
+- [Diary](https://paidtabs.com/a?u=LaoiseEarle&r=/u/LaoiseEarle/q/24IfD-0VUu4)
+  
 **Clairo:**
 
 - [Bags](https://paidtabs.com/u/LaoiseEarle/q/L9HYJbe9Y18)
